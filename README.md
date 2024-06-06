@@ -1,4 +1,4 @@
-# Aloure-du-faka-web
+# Aloure-du-faka-web-2024最新独家开发-
 <!-- wp:paragraph -->
 <p>🔥自营2024最新独家开发发卡盗U秒U商城（所有钱包无风险提示！！）🔥</p>
 <!-- /wp:paragraph -->
@@ -58,3 +58,4 @@
 <!-- wp:image -->
 <figure class="wp-block-image"><img src="https://hfbot-pro.hfz2333.top/wp-content/uploads/2024/05/image-14.png" alt="image"/></figure>
 <!-- /wp:image -->
+详细链接：https://aloure-web.top/archives/29
